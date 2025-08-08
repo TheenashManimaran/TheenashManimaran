@@ -1,5 +1,5 @@
 # 💫 About Me:
-sidhfkjfd
+I am a Problem Solver and Competitive Programmer 
 
 
 ## 🌐 Socials:
